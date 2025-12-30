@@ -1,2 +1,1 @@
-# Qaror-
-Qaror
+jajananwb
